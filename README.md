@@ -1,3 +1,1 @@
-![](https://files.catbox.moe/4trrh9.gif)
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bitcount+Grid+Double&duration=3000&pause=200&color=24BC58&width=435&lines=Soon+I+will+be+gone%2C+but+you+will;remain+forever+Departed%2C+destined+to;haunt+this+temple+forever+as+the+new+;Master+of+the+House)](https://git.io/typing-svg)
+![groovyfrog420 on tumblr](https://www.image2url.com/r2/default/files/1777745759677-097ff89f-9ff5-4bf4-b3bd-195aa59e0da0.png)
